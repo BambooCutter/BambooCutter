@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @BambooCutter
-- 👀 I’m interested in ?
+- 👀 I’m interested in whatever you can see
 - 🌱 <-this emoji is cute
-- 💞️ <-what's this,oh hearts,I like that
+- 💞️ I'm trying to use English to write my notes
 - 📫 You cant't reach me right now
 
 <!---
